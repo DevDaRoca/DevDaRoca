@@ -14,7 +14,6 @@
 - 💞️ Eu vou colaborar em:
 - Ajudar a fazer para-casa
 - Criar sites
-- Vender coisa (chama pv no zapzap)
 - 📫 Como me achar:
 - Whatsapp: (Falo com vc)
 - Instagram: https://www.instagram.com/celophxbatista
