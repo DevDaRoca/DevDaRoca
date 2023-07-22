@@ -4,7 +4,6 @@
 - Diário de um Banana
 - Música eletrônica
 - Eminem
-- Tomate, MUITO TOMATE
 - Programação
 - Fazenda
 - Laranja (fruta e cor)
